@@ -1,1 +1,1 @@
-# mokshpathik
+# mokshpathit
